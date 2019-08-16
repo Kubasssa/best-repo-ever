@@ -1,2 +1,2 @@
 # best-repo-ever
-kupa
+kupa chuj chuj
